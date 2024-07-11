@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @luciana777
-- 👀 I’m interested in photograpy, programing ,cinema and training
-- 🌱 I’m currently learning programing y photograpy
+- 👀 I am interested in programming, training, fashion and cinema. I also play the guitar.
+- 🌱 I am currently studying computer engineering and I am also learning programming on my own.
 - 📫 How to reach me ---> lucianaam97@gmail.com
